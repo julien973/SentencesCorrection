@@ -1,10 +1,14 @@
 # Review Detail
 
-<!-- Source : Review Detail.docx, converti en Markdown le 17/11/2026. Texte fidèle à l'original ; images (avatars, badges) non incluses. -->
+<!-- Source : Review Detail.docx, converti en Markdown le 17/11/2026, puis vérifié et enrichi le même jour contre la page Webnovel en ligne (source de vérité). Texte fidèle à l'original, espacements de l'original inclus ; images (avatars, badges) non incluses. Webnovel affiche au-dessus de certaines réponses le message cité auquel elle répond : un bloc peut donc apparaître deux fois, une fois comme message, une fois comme contexte cité. -->
+
+> **Roman** : Multiverse Starting From Jojo: Steel Ball Run · **Auteur** : MissRaven2 · 300 chapitres
+> **Review** : IMDOOMED, postée le 08/10/2026 à 01:36 · 17 likes · 27 réponses
+> **Page** : https://m.webnovel.com/review/35942292208097005/976475219566854144
 
 ## Review par IMDOOMED · LV 14
 
-*1mth · 17 likes · 27 replies*
+*1mth (08/10/2026) · 17 likes · 27 replies*
 
 It is genuinely heartbreaking to watch a JoJo fanfiction that was so remarkably well-written up to this point turn into yet another fraudulent crossover, purely because the author suddenly abandoned the most sacred rule of Hirohiko Araki’s universe! After he entered into jujutsu kaisen universe!
 
@@ -40,15 +44,15 @@ JoJo glazers are something else man, stands are just a manifestation of the indi
 
 ### IMDOOMED · LV 14
 
-*2d*
+*2d · 2 likes*
 
 Go watch part 4 of JoJo, the anime already answered this exact question in black and white 🤷‍♂️
 
-I mean, claiming that seeing souls or soul-like energy is more than enough to see a Stand proves you are mixing everything up without knowing the fundamental rules of the lore. It is not because someone is able to see ghosts that they can see a Stand, for the simple reason that those two manifestations do not belong to the same category whatsoever. In Diamond is Unbreakable, the presence of Reimi Sugimoto perfectly illustrates that the ghost realm and Stand projections operate on distinct spiritual planes.
+I mean, claiming that seeing souls or soul-like energy is more than enough to see a Stand proves you are mixing everything up without knowing the fundamental rules of the lore. It is not because someone is able to see ghosts that they can see a Stand, for the simple reason that those two manifestations do not belong to the same category whatsoever . In Diamond is Unbreakable, the presence of Reimi Sugimoto perfectly illustrates that the ghost realm and Stand projections operate on distinct spiritual planes .
 
-Above all, Hirohiko Araki’s canonical rule is ironclad and absolute: only Stand users can see Stands 🫩✌️. You can be fully capable of interacting with soul and ghosts, that will never make you able to perceive a Stand unless you possess that specific awakening yourself.
+Above all, Hirohiko Araki’s canonical rule is ironclad and absolute : only Stand users can see Stands 🫩✌️ . You can be fully capable of interacting with soul and ghosts, that will never make you able to perceive a Stand unless you possess that specific awakening yourself .
 
-Besides, you know, calling people glazers while tossing around completely false explanations shows you speak without mastering your topic 🤦‍♂️. Next time you want to counter someone’s argument, do it with actual knowledge of the material instead of saying nonsense that the anime answered years ago 💀
+Besides, you know, calling people glazers while tossing around completely false explanations shows you speak without mastering your topic 🤦‍♂️ . Next time you want to counter someone’s argument, do it with actual knowledge of the material instead of saying nonsense that the anime answered years ago 💀
 
 ---
 
@@ -72,13 +76,13 @@ or maybe I’m just overthinking things
 
 *2d · 1 like*
 
-As I already stated in my previous comment, it is precisely because Stands are the direct manifestation of that specific life energy inherent to JoJo’s universe, whether it be Hamon or the Spin.
+As I already stated in my previous comment, it is precisely because Stands are the direct manifestation of that specific life energy inherent to JoJo’s universe, whether it be Hamon or the Spin .
 
-I mean, Hirohiko Araki’s canon has always established that a Stand is the visual culmination of these unique spiritual disciplines, just as Hermit Purple materializes Hamon or Ball Breaker embodies the Golden Spin. The core of the issue is that these exact energies do not exist in any other fictional universe. They are completely absent from the world of Jujutsu Kaisen, just as the Saint’s Corpse or extraterrestrial meteorites carrying the Stand virus are nonexistent there.
+I mean, Hirohiko Araki’s canon has always established that a Stand is the visual culmination of these unique spiritual disciplines, just as Hermit Purple materializes Hamon or Ball Breaker embodies the Golden Spin . The core of the issue is that these exact energies do not exist in any other fictional universe . They are completely absent from the world of Jujutsu Kaisen, just as the Saint’s Corpse or extraterrestrial meteorites carrying the Stand virus are nonexistent there .
 
-Therefore, there is absolutely no way to see or perceive Stands in other universes. A sorcerer can possess peak cursed energy refinement, wield the Six Eyes, or manipulate souls, that will never grant them the biological or energetic wavelength required to see a Stand, because a Stand is neither a cursed spirit nor a curse born of negative human emotions.
+Therefore, there is absolutely no way to see or perceive Stands in other universes . A sorcerer can possess peak cursed energy refinement, wield the Six Eyes, or manipulate souls, that will never grant them the biological or energetic wavelength required to see a Stand, because a Stand is neither a cursed spirit nor a curse born of negative human emotions .
 
-Above all, you know, what made this fanfiction so remarkably well-written in the beginning was that the author handled this exact boundary with absolute perfection across Hellsing and Baki, where opponents could see nothing and had to deal with an entirely imperceptible force. Watching the author suddenly throw all of that away in the Jujutsu Kaisen arc to normalize Stands for everyone completely abandons JoJo’s most sacred rule and strips the crossover of its identity
+Above all, you know, what made this fanfiction so remarkably well-written in the beginning was that the author handled this exact boundary with absolute perfection across Hellsing and Baki, where opponents could see nothing and had to deal with an entirely imperceptible force . Watching the author suddenly throw all of that away in the Jujutsu Kaisen arc to normalize Stands for everyone completely abandons JoJo’s most sacred rule and strips the crossover of its identity
 
 ---
 
@@ -110,7 +114,7 @@ Finally, trying to label a Stand as a cursed spirit by citing Notorious B.I.G pr
 
 *20h*
 
-Claiming that this rule would only apply within the world of JoJo proves you are not even thinking with basic logic 🤷‍♂️. The only canon exceptions that allow someone to perceive a Stand are Hamon and the Golden Spin, Given that these are the direct access steps leading to the Stand and also that in other fictional universes absolutely nobody masters either Hamon or the Golden Spin, the barrier of invisibility is even more absolute out there. On top of talking complete nonsense, your own argument completely backfires on you 💀.
+Claiming that this rule would only apply within the world of JoJo proves you are not even thinking with basic logic 🤷‍♂️. The only canon exceptions that allow someone to perceive a Stand are Hamon and the Golden Spin, Given that these are the direct access steps leading to the Stand and also that in other fictional universes absolutely nobody masters either Hamon or the Golden Spin, the barrier of invisibility is even more absolute out there . On top of talking complete nonsense, your own argument completely backfires on you 💀.
 
 ---
 
